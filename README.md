@@ -1,2 +1,0 @@
-# codigos de matematica
- 
